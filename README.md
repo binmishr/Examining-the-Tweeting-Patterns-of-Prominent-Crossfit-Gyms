@@ -1,0 +1,1 @@
+# Examining-the-Tweeting-Patterns-of-Prominent-Crossfit-Gyms
